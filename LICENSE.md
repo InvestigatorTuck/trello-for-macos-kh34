@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with smart Trello for macOS Utility | database templates + reminders, the #1 utility. Includes database templates and reminders for a smoother experience.
 
 
 
